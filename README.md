@@ -2,6 +2,9 @@
 
 A collection of Instagram links of cute Shiba Inu dogs
 
+![shibainu_non](shiba-intro.jpg)
+From [shibainu_non](https://www.instagram.com/p/Bj8rhrFl9Ws/?taken-by=shibainu_non) on Instagram
+
 Birthdays or other info listed when available! Plz refer to the Instagram page author's terms of usage if you are trying to use their pics. This collection is for reference and sharing shiba instagrams only.
 
 * [shibainu_uno](https://www.instagram.com/shibainu_uno/) - 4/20/18 pup!
@@ -37,3 +40,6 @@ Birthdays or other info listed when available! Plz refer to the Instagram page a
 * [azuchan4](https://www.instagram.com/azuchan4/) - up to 3 shibas pictured!
 * [koroharu_shiba](https://www.instagram.com/koroharu_shiba/) - 2 energetic shiba buddies!
 * [marutaro](https://www.instagram.com/marutaro/) - famous one
+
+![shibainu.berry](shiba-done.png)
+From [shibainu.berry](https://www.instagram.com/p/BjQsAxAgshf/?taken-by=shibainu.berry) on Instagram
