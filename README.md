@@ -1,2 +1,5 @@
-# collection-of-shiba-instagrams
-A collection of instagrams of shiba inus
+# Collection of Shiba Inu Instagrams
+
+A collection of Instagram links of lovely Shiba Inu dogs
+
+* [Yoshi](https://www.instagram.com/pupperyoshi/)
