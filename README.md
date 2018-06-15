@@ -2,7 +2,7 @@
 
 A collection of Instagram links of cute Shiba Inu dogs
 
-![shibainu_non](shiba-intro.jpg)
+![shibainu_non](shiba-intro.png)
 From [shibainu_non](https://www.instagram.com/p/Bj8rhrFl9Ws/?taken-by=shibainu_non) on Instagram
 
 Birthdays or other info listed when available! Plz refer to the Instagram page author's terms of usage if you are trying to use their pics. This collection is for reference and sharing shiba instagrams only.
